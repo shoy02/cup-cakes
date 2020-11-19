@@ -1,0 +1,1 @@
+melt dairy milk,add milk into the melted dairy milk and mix well,break and put oreo's in a grinder and grind for a minute,add 1/3 cup of milk,blend it again for 30 seconds,it turns into smooth batter,put the batter into cups and add the melted dairy milk to it,put it in the oven,add frosting,and the cupcakes are ready!
